@@ -9,3 +9,5 @@ Meu nome é Pedro Henrique
 ### Você pode entrar em contato comigo 📫
 
 pedro.nagata@escola.pr.gov.br
+
+![](https://media.tenor.com/tM4FrhZwPnAAAAAi/monkey-music.gif)
